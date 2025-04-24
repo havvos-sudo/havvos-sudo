@@ -1,0 +1,2 @@
+- 😻 Hi, I’m @havvos-sudo
+- 🧜‍♀️ I’m currently learning Python, C++, Swift   𐙚🧸ྀི
